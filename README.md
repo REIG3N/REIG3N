@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @REIG3N
+- 👀 I’m interested in coding, manga, sport
+- 🌱 I’m currently learning a lot of coding languages
+- 💞️ I’m not looking to collaborate for now
