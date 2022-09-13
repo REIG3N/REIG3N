@@ -9,7 +9,7 @@
                                                                     
                                         ⚡️ Niveau hobbies j'aime:
                                         -bah la bagarre (MMA/Muscu)
-                                             les mangas/animes
+                                            -les mangas/animes
                                                                        
 ---------------------------------------💻 💻 💻  CODING  💻 💻 💻------------------------------------------
 
